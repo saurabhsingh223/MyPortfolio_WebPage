@@ -36,7 +36,7 @@ Add a screenshot of your homepage or projects section here
 
 If you want to connect, feel free to reach out:
 
-Email: yourname@email.com
+Email: sksings318@email.com
 
 LinkedIn: Your LinkedIn
 
